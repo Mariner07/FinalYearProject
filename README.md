@@ -7,7 +7,7 @@ _____________________
 
 Team members: Nurlan Nogoibaev and Beknazar Jumabaev 
 
- 
+Supervising Professor: Shuaib Muhammad
 
  
 
